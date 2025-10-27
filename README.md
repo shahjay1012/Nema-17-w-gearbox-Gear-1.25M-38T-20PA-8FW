@@ -1,0 +1,1 @@
+# Nema-17-w-gearbox-Gear-1.25M-38T-20PA-8FW
